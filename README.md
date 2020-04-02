@@ -1,6 +1,5 @@
-# COVID-19-2020
+# A few things I am doing in my spare time during the lockdown (COVID-19-2020)
 
-# A few things I am doing in my spare time during the lockdown
 ## Reading about living in the present and becoming less obsessed with the future
 - Currently reading "The Power of Now"
 ## Connecting with my friends and family on a more regular basis
